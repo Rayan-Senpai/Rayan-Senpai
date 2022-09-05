@@ -26,4 +26,4 @@
 [![](https://img.shields.io/badge/Github-black?logo=Github&logoColor=black&labelColor=white)](https://github.com/Rayan-Senpai) [![](https://img.shields.io/badge/Twitter-yellow?logo=Twitter&logoColor=White&labelColor=white)](https://mobile.twitter.com/RayanSenpai666)[![](https://img.shields.io/badge/Telegram-blue?logo=Telegram&logoColor=red&labelColor=white)]()
 [![](https://img.shields.io/badge/Facebook-blue?logo=Facebook&logoColor=blue&labelColor=white)](https://www.facebook.com/Rayan)[![](https://img.shields.io/badge/Instagram-red?logo=Instagram&logoColor=red&labelColor=white)](https://www.instagram.com/sptaadiryn) [![](https://img.shields.io/badge/Whatsapp-CHAT-red?logo=Whatsapp&logoColor=Brightgreen&labelColor=white)](https://wa.me/6287749413828?text=Asalamualaikum+kak+Rayan+ganteng)
 ## KASIH STAR LAH BLOK🌟🌟🌟🌟🌟🌟🌟
-![Typing SVG](https://readme-typing-svg.herokuapp.com?lines=Selamat+Bersenang-senang....!+)
+![Typing SVG](https://readme-typing-svg.herokuapp.com?lines=Follow+Rayan-Senpai....!+)
